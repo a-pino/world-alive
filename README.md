@@ -10,11 +10,11 @@ Want to work with us? Contact alexander.pino@obf.ateneo.edu for details.
 
 ### Record your daily life with AI Companions
 
-### Customize and Accessorize
-
 ### Explore history and culture with Journeys
 
-![The Hagia Sophia  Is it a church or a mosque Well, it's a long story](https://github.com/a-pino/world-alive/assets/131161383/9bfc2be2-5ae7-4294-a1c0-968afcf420aa)
+![The Hagia Sophia  Is it a church or a mosque Well, it's a long story  (2)](https://github.com/a-pino/world-alive/assets/131161383/706b340f-1945-4f2c-a3b9-b4d89cee386f)
+
+### Customize and Accessorize
 
 ### Share with your friends
 
